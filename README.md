@@ -1,2 +1,0 @@
-# Voss
-Festinha doidona
